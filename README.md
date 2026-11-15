@@ -1,4 +1,4 @@
-# My Favorite Movie & Series 🎬
+# My Favorite Movie & Series
 
 Here is a quick overview of my all-time favorite animated movie and anime series.
 
